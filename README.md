@@ -1,4 +1,4 @@
-### Hi, I'm ☈🌣♛𝛛⋒ [𝚜𝚑𝚎/𝚑𝚎𝚛]
+### Hi, I'm ☈🌣♛𝛛⋒.
 
 Well, that's how I try to write my name in fancy unicode characters, at least :)\
 In case you just needed some ASCII, here ya go:
